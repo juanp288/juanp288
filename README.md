@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **jpv288@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ImJC_MyR38mlmJdJ-Qd2ZfslW_1puKRf/view?usp=drive_link](https://drive.google.com/file/d/1ImJC_MyR38mlmJdJ-Qd2ZfslW_1puKRf/view?usp=drive_link)
+- 📄 Know about my experiences [Profile](https://drive.google.com/file/d/1ImJC_MyR38mlmJdJ-Qd2ZfslW_1puKRf/view?usp=drive_link)
 
 - ⚡ Fun fact **I am a social dancer 🕺**
 
